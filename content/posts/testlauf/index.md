@@ -6,6 +6,8 @@ pinned = false
 +++
 
 
-![](https://de.wikipedia.org/wiki/Wikimedia_Commons#/media/Datei:Broadway_tower_edit.jpg)
+![]()
 
 Leer, bildet sich aber ein, voll zu sein.
+
+![\#grungeaesthetic | Zufällige bilder, Humorvolle bilder, Schöne seele](https://i.pinimg.com/originals/fa/f6/0c/faf60c1dd1c97aa5b268d6d1ddc26602.jpg)
